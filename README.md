@@ -1,3 +1,3 @@
 Nama Anggota :
 
-tes
+2. Aida Suswanto
